@@ -8,6 +8,8 @@ We run to nowhere
 
 High five, nice to meet you
 
+Hugs are nice
+
 It ends
 
 We are gone
