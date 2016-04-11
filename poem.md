@@ -14,4 +14,6 @@ It ends
 
 We are gone
 
+Circle round ellipses
+
 Just dust in the wind
