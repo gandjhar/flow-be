@@ -13,3 +13,5 @@ Hugs are nice
 It ends
 
 We are gone
+
+Just dust in the wind
